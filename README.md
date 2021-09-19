@@ -1,1 +1,0 @@
-# ayasofyayeni2psdnvb
